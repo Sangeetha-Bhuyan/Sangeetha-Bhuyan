@@ -1,4 +1,4 @@
-### Hi! I’m @Sangeetha-Bhuyan
+### **Hi! I’m @Sangeetha-Bhuyan**
    1. Previous coding experience: I do not have any prior coding experiences
    2. Reason(s) for taking this class: I have wanted to take a computer science class for a while because it is something different than anything I have learned in the past
    3. Other interests: dance, mountaineering, journalism, singing, volleyball, medicine, science research 
